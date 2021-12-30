@@ -1,4 +1,4 @@
-#**我是宇宙究级大啥b**
+#我是宇宙究级大啥b
 
 这是为什么呢
 
@@ -10,4 +10,4 @@
 
 谁能告诉我答案？
 
-###[_诶_,我知道了](https://www.bilibili.com/video/BV1uT4y1P7CX)
+[_诶_,我知道了](https://www.bilibili.com/video/BV1uT4y1P7CX)
